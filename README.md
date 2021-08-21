@@ -2,7 +2,7 @@
 - 👀 I’m interested in : Well...that's a secret😄
 - 📚 Just a newbie😅
 - 🌱 I’m currently learning : CSE
-- 💞️ I’m looking to collaborate on : Currently, nothing.
+- 💞️ I’m looking to collaborate on : Presently, nothing.
 - 📫 How to reach me : Please don't😁🙏
 
 <!---
